@@ -1,1 +1,0 @@
-# olma1227-git-test
